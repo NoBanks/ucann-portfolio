@@ -28,7 +28,7 @@ https://github.com/user-attachments/assets/11e749a4-56f8-4c60-835c-1a33468accc6
 
 **Stop the data vampires (presentation brief):**
 
-https://github.com/user-attachments/assets/e2f712b3-3cb0-43c8-b858-e676939dc5d4
+https://github.com/user-attachments/assets/6bc5a5c5-dfbf-425d-9762-6f7a50c726c8
 
 ---
 
