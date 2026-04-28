@@ -26,7 +26,7 @@ https://github.com/user-attachments/assets/1ca1279e-9e60-45f0-af36-5485507c7308
 
 https://github.com/user-attachments/assets/11e749a4-56f8-4c60-835c-1a33468accc6
 
-**Sovereign cannabis intelligence, deeper:**
+**Stop the data vampires (presentation brief):**
 
 https://github.com/user-attachments/assets/e2f712b3-3cb0-43c8-b858-e676939dc5d4
 
