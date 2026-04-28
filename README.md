@@ -48,7 +48,7 @@ Three short deck videos with original NoBanks music.
 
 ## Pronunciation
 
-UCann is pronounced "you-can" (two syllables). The capital UC is brand styling, not a pronunciation cue.
+UCann is pronounced "you-CANN" (two syllables, emphasis on the second). The double-N matters: it signals the cannabis-industry suffix and distinguishes the brand from the verb "you can." Visual artifacts render the brand as UCann (capital U, capital C, double-n).
 
 ---
 
